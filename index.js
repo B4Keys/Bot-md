@@ -1,17 +1,14 @@
 /**
 	@ No Re Upload, recode sendiri base nya klo mau 😏
-	@ Sc no enc silahkan cek https://github.com/DikaArdnt/alpha-Morou
+	@ Sc no enc silahkan cek https://github.com/4k
  
 	 「 TqTo 」
-	@ My God
-	@ My Parents
-	@ Fatih A.
-	@ Ferdi
-	@ DikaArdnt [author]
-	@ Mhankbarbar
-	@ Nurutomo
-	@ Rashid
-	@ AzzBotOfc
+	@ 4 K E Y S
+	@ 4Keys Team
+	@ MHL c17
+	@ 4k sanzz
+	@ 4keys 3s
+	@ 4keys es
 	@ Penyedia Module
 	@ And All Support
 **/
